@@ -51,8 +51,8 @@
 
 ## 🌐 Connect with Me
 
-- 💼 LinkedIn: https://www.linkedin.com/in/barkath-jr-03586a2bb
-- 📧 Email: barkath0024@gmail.com
+- 💼 LinkedIn: https://www.linkedin.com/in/malarvanan-mariyappan-577055258
+- 📧 Email: malarvananmariyappan@gmail.com
 
 ---
 
